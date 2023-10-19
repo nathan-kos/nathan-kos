@@ -1,4 +1,4 @@
-## Eae, sou Nathan Ks 🐷
+## Eae, sou Nathan Ks
 #### "tentando o meu melhor para ser o meu melhor🚀"
 
 ##
